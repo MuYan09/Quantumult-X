@@ -7,8 +7,8 @@
 
 加入我们的 **[Telegram群组](https://t.me/juzixpchat)** 获取最新 **Quantumult X共享账号** 及苹果各区Apple ID。
 
-- **购买独享账号**：提供 **Quantumult X独享账号**、[苹果各区Apple ID等多种选择，点击进入](https://shop.muooy.com/buy/61)。
-- **Quantumult X共享账号租借**：[便捷获取圈X账号，点击进入](https://shop.muooy.com/buy/68)。
+- **购买独享账号**：提供 **Quantumult X独享账号**、[苹果各区Apple ID等多种选择，点击进入](https://juzixp.com/buy/61)。
+- **Quantumult X共享账号租借**：[便捷获取圈X账号，点击进入](https://juzixp.com/buy/68)。
 
 ## 苹果各区账号共享
 
